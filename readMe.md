@@ -1,0 +1,1 @@
+## Bu dosyada; mimari çizimleri bulabilirsiniz
